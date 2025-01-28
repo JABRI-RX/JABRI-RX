@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **who was the man who sold the world ?**
 
-<h3 align="left">Connect with me:</h3>
+ 
 <p align="left">
 </p>
 
